@@ -1,1 +1,5 @@
-# ideconfy
+![safa](https://github.com/user-attachments/assets/cf8c6f52-fc2e-4a31-a3f0-7c19fa2605b1)
+![asfaf](https://github.com/user-attachments/assets/ddb2a227-e74a-4434-a2bd-daed6038e9cf)
+![asdsaf](https://github.com/user-attachments/assets/461b2cbf-1240-4356-b411-ce2849a0eab0)
+![asdafsqqwer](https://github.com/user-attachments/assets/5b776b0d-db96-4110-9b26-ae41a97d1e1a)
+![asdaf](https://github.com/user-attachments/assets/7c3a4b3e-4f56-4db8-81fd-50eed8f0feab)
